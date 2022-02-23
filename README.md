@@ -1,1 +1,1 @@
-Created this as a personal account and portfolio incase i happen to make something
+Created this as a personal account and portfolio in case i happen to make something
